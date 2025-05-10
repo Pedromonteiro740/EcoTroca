@@ -1,4 +1,4 @@
-**URL**: https://lovable.dev/projects/f33dfe99-c844-444b-865f-5fa996173ea4
+**URL**: [https://lovable.dev/projects/f33dfe99-c844-444b-865f-5fa996173ea4](https://problem-solved-future-now.lovable.app/)
 
 # 🌱 GreenLoop
 
